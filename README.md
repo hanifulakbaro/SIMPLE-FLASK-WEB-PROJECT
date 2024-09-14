@@ -1,0 +1,1 @@
+# latihanlinuxubuntu1
